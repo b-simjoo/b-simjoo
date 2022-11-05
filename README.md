@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @bsimjoo-official (Unfortunately I lost access to "bsimjoo" account and I had to create this account)
+- 👀 I’m interested in algorithm design, Data structures, Music and Sport 🚲!
+- 🌱 I’m currently studying computer engineering at Hormozgan University
+- 📫 How to reach me:
+  - My website with my friend: [pcworms.ir](https://pcworms.ir)
+  - My email: bsimjoo[at]pcworms.ir
+  - my Id in social medias: @bsimjoo
